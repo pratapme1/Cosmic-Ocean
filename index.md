@@ -25,4 +25,4 @@ Cosmic Ocean does not knowingly collect data from children. The app is designed 
 If we make changes to this privacy policy, we will update the effective date and provide the updated policy in the app or on the website where this policy is hosted.
 
 ## Contact
-If you have questions about this policy, contact us at: **privacy@cosmococean.app** (replace with your official support email).
+If you have questions about this policy, contact us at: **cosmicocean625@gmail.com** (replace with your official support email).
